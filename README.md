@@ -1,1 +1,1 @@
-# rsschool-cv
+https://temakk.github.io/rsschool-cv/cv
